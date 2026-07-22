@@ -1,0 +1,20 @@
+.bible-verses-div-class {
+    border: 1px solid darkgreen;
+    margin-left: 10%;
+    margin-right: 10%;
+    margin-top: 5%;
+    margin-bottom: 5%;
+    padding: 1% 1%;
+    font-family: Verdana, Geneva, Tahoma, sans-serif;
+    text-align: center;
+}
+
+.bible-topics-div-class {
+    border: 1px solid darkgreen;
+    margin-left: 25%;
+    margin-right: 25%;
+    margin-top: 50px;
+    margin-bottom: 50px;
+    padding: 1% 1%;
+    font-family: Verdana, Geneva, Tahoma, sans-serif;
+}
