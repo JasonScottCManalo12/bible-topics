@@ -189,6 +189,7 @@ Answer:
  - 2 Corinthians 8:7
  - Philippians 1:9
  - Colossians 2:3
+ - 1 Timothy 2:4
  - 1 Timothy 2:25
  - Titus 1:2
  - Hebrews 10:26-27
