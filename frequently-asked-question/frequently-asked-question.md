@@ -221,9 +221,9 @@ Answer:
  - Proverbs 3:17
  - 1 Corinthians 2:12-16
 
-
-
-
+**Question:** How do these wonders, wisdom, and intelligence of men wonder, perish, and vanish? \
+Answer:
+ - Isaiah 29:13-14
 
 
 
