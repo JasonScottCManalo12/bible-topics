@@ -5,7 +5,7 @@
 
 **Question:** What do these treasures look like on Earth and in heaven? \
 Answer: 
- - Hebrews 1043-36 
+ - Hebrews 10:34-36 
  - Matthew 6:19-21
  - Matthew 13:44
  - Matthew 19:21
@@ -31,7 +31,7 @@ Answer:
 
 ### God: The Almighty
 
-**Question:** Is God wise or a fool? \
+**Question:** Is God wise or foolish? \
 Answer:
  - Proverbs 21:30
  - Job 9:4
