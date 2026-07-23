@@ -105,26 +105,26 @@ Answer:
  - Luke 21:15
  - 1 Timothy 5:21
 
+**Question:** Which is more important, John 3:16 or Romans 16:16? \
+Answer:
+ - Romans 2:11
+ - Mark 12:28-31
+ - Matthew 22:35-40
+ - Galatians 5:14-15
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+**Question:** Can we keep a secret? \
+Answer:
+ - Psalms 44:21
+ - Psalms 90:8
+ - Proverbs 11:13
+ - Proverbs 17:23
+ - Isaiah 45:19
+ - Isaiah 48:16
+ - Matthew 6:4
+ - Matthew 6:6
+ - Matthew 6:18
+ - Matthew 13:11
+ - Mark 4:11
 
 
 
