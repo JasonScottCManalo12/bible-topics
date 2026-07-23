@@ -47,6 +47,8 @@ Answer:
  - 1 Corinthians 3:19
  - 1 Corinthians 2:7
 
+<br>
+
 **Question:** Can God also keep a secret?
 
 Answer: 
@@ -58,6 +60,8 @@ Answer:
  - Mark 4:11
  - Luke 8:10
  - 1 Corinthians 2:7
+
+<br>
 
 **Question:** What kind of temple does God protect from evil?
 
