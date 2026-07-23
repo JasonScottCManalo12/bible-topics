@@ -3,8 +3,7 @@
 
 ### Treasures: Earth vs Heaven
 
-**Question:** What do these treasures look like on Earth and in heaven?
-
+**Question:** What do these treasures look like on Earth and in heaven? \
 Answer: 
  - Hebrews 1043-36 
  - Matthew 6:19-21
@@ -22,8 +21,7 @@ Answer:
 
 ### Simplicity: The highest of all contentments
 
-**Question:** What are my desires in living?
-
+**Question:** What are my desires in living? \
 Answer:
  - 1 Timothy 6:6-8
 
@@ -33,8 +31,7 @@ Answer:
 
 ### God: The Almighty
 
-**Question:** Is God wise or a fool?
-
+**Question:** Is God wise or a fool? \
 Answer:
  - Proverbs 21:30
  - Job 9:4
@@ -47,10 +44,7 @@ Answer:
  - 1 Corinthians 3:19
  - 1 Corinthians 2:7
 
-<br>
-
-**Question:** Can God also keep a secret?
-
+**Question:** Can God also keep a secret? \
 Answer: 
  - Deuteronomy 29:29
  - Proverbs 11:13
@@ -61,10 +55,7 @@ Answer:
  - Luke 8:10
  - 1 Corinthians 2:7
 
-<br>
-
-**Question:** What kind of temple does God protect from evil?
-
+**Question:** What kind of temple does God protect from evil? \
 Answer: 
  - 1 Corinthians 3:16-17,19
  - 1 Chronicles 28:20
@@ -76,6 +67,194 @@ Answer:
  - 2 Corinthians 6:16
  - Revelation 11:19
  - Revelation 21:22
+
+<br>
+<br>
+<br>
+
+### Confession: The lips of the Truth
+
+**Question:** Should I be afraid to share or to speak the truth? \
+Answer:
+ - Luke 21:15-19
+ - Luke 21:8
+ - Deuteronomy 30:11
+ - Deuteronomy 30:14
+ - Joshua 1:7-8
+ - Nahum 1:7
+ - Mark 23:28-29
+ - 1 Peter 3:14
+ - Luke 12:11-12
+ - 1 Thessalonians 1:5
+ - 1 Thessalonians 4:8
+ - 1 Thessalonians 4:18
+ - 2 Timothy 1:14
+ - Hebrews 10:15-17
+ - Hebrews 8:6
+ - Matthew 11:25
+ - Mark 11:22
+ - Acts 14:22
+ - 1 John 1:9
+ - Luke 22:71
+ - Hebrews 13:15
+ - Colossians 3:8
+
+**Question:** What parts of the Bible should I choose or show emphasis? \
+Answer:
+ - Romans 2:11
+ - Luke 21:15
+ - 1 Timothy 5:21
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
