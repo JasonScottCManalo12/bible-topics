@@ -144,55 +144,58 @@ Answer:
  - Galatians 6:2
  - 2 Thessalonians 2:7-10
 
+**Question:** How many laws or instructions should I follow? \
+Answer:
+ - Galatians 5:3
 
+**Question:** What should I choose, law or grace? \
+Answer:
+ - Romans 2:11
+ - Galatians 5:3-6
 
+**Question:** Is it good to have free will and do anything that I want? \
+Answer:
+ - 1 Corinthians 6:9-20
+ - 1 Corinthians 10:23-33
+ - Galatians 2:4
+ - Galatians 5:13-15
+ - Galatians 5:17
+ - Galatians 5:10
+ - Colossians 2:20-22
 
+<br>
+<br>
+<br>
 
+### Wisdom, Insight, and Knowledge: Earth and The Divine Power of Heaven
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+**Question:** Are wisdom and knowledge the same? \
+Answer:
+ - Proverbs 4:5-7
+ - Proverbs 5:1-2
+ - Matthew 13:11
+ - Luke 8:10
+ - Romans 1:28
+ - Romans 10:28
+ - Romans 11:33
+ - Luke 7:35
+ - 1 Corinthians 1:18-21
+ - 1 Corinthians 2:6-7
+ - 1 Corinthians 2:13
+ - 1 Corinthians 3:19
+ - 2 Corinthians 1:12
+ - 1 Corinthians 12:8
+ - 2 Corinthians 2:14
+ - 2 Corinthians 8:7
+ - Philippians 1:9
+ - Colossians 2:3
+ - 1 Timothy 2:25
+ - Titus 1:2
+ - Hebrews 10:26-27
+ - 2 Peter 1:5-6
+ - 2 Peter 1:8
+ - 2 Peter 3:18
+ - 1 Timothy 6:20
 
 
 
