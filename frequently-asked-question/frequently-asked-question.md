@@ -1,7 +1,7 @@
 # Frequently Asked Questions
 
 
-#### Treasures: Earth vs Heaven
+### Treasures: Earth vs Heaven
 
 Question: What do these treasures look like on Earth and in heaven?
 
@@ -20,7 +20,7 @@ Answer:
 <br>
 <br>
 
-#### Simplicity: The highest of all contentments
+### Simplicity: The highest of all contentments
 
 Question: What are my desires in living?
 
