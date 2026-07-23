@@ -198,28 +198,28 @@ Answer:
  - 2 Peter 3:18
  - 1 Timothy 6:20
 
+**Question:** Where does wisdom begin? \
+Answer:
+ - Psalms 111:10
+ - Proverbs 1:7
+ - Proverbs 9:10
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+**Question:** Where can wisdom, insight, and knowledge? \
+Answer:
+ - Proverbs 10:13
+ - Proverbs 11:2
+ - Proverbs 15:33
+ - Proverbs 23:23
+ - Job 12:13
+ - Job 13:5
+ - Job 28:12
+ - Job 28:21
+ - Job 28:23
+ - Job 28:28
+ - Proverbs 2:6
+ - Proverbs 2:10
+ - Proverbs 3:17
+ - 1 Corinthians 2:12-16
 
 
 
