@@ -126,6 +126,46 @@ Answer:
  - Matthew 13:11
  - Mark 4:11
 
+<br>
+<br>
+<br>
+
+## Heaven and Earth: Laws, Knowledge, and Spirit
+
+### Law: In Christ and In Sinful Nature
+
+**Question:** Are there any laws that exist other than the laws of Moses? \
+Answer:
+ - Romans 8:2
+ - Romans 8:9
+ - 1 Corinthians 9:19-21
+ - 2 Corinthians 5:16-17
+ - Galatians 5:4
+ - Galatians 6:2
+ - 2 Thessalonians 2:7-10
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
